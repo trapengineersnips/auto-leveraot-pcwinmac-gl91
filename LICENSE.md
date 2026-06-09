@@ -1,4 +1,4 @@
-# 
+# Nouveau auto-leverage trading bot extensions pour Mac OS | Top auto-leverage trading bot extensions pour PC Windows. Avec détection de liquidation et gestion de portefeuille — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
